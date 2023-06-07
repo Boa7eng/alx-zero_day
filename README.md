@@ -1,1 +1,1 @@
-My first readme
+Karen is my friend
